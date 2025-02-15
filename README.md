@@ -21,7 +21,7 @@ I'm a **Business Intelligence Analyst in training**, blending over a decade of *
 - 🧠 Mindfulness, Wellness & NLP  
 
 ## 📫 Connect With Me    
-- **LinkedIn:** [https://www.linkedin.com/in/nathan-brown-nlp/](#)  
+- **LinkedIn:** [linkedin.com/in/nathan-brown-nlp](#)  
 - **Email:** [naythophyl@gmail.com](mailto:naythophyl@gmail.com)  
 
 Let's collaborate and create **data-driven solutions that inspire change!** 🚀  
